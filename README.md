@@ -6,4 +6,6 @@ kEbAp
 Motto of the day:
 
 ![image](https://github.com/user-attachments/assets/00385168-4e7e-48bd-9e37-66c7047ea302)
+![image](https://github.com/user-attachments/assets/415553eb-b65f-4763-b31e-7f7ba890cbc0)
+
 
